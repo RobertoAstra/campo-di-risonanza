@@ -1,0 +1,1 @@
+# campo-di-risonanza
